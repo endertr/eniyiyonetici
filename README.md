@@ -1,0 +1,2 @@
+# eniyiyonetici
+en iyi yönetici
